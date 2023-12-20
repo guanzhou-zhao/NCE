@@ -17,16 +17,21 @@ Apart from clearly expressing the his willingness to live in the city and less i
 
 5. Even he still lives under the illusion that country life is somehow superior to town life. 
 >The author's friend thinks or feels or recons or acts like that country life is better than town life. But the author couldn't understand or can only dimly understand, or he thought that his friend's idea about the country is not reasonable or not logical, or not persuasive, or is hypocritical or dishonest, because his friend went live in the country and was back in town within six months. If he really loves the peaceful life of the country, why did he come back to town. Ater coming back in town, he still feels that the country is better and forever praising the advantages of the country. So the author recon that his friend lives under the illusion(a false idea which is not real, not actual, not in reality). The author sees that what his friend talks and does are different, or even opposite or contradicting. The author sees contradiction in his friend's action and thought. This difference doesn't confuse the author. He confidently think that his friend lives under illusion.
+>somehow superior, not really superior
+
+>Given his six months of living experience in the country and backing to town, he still lives under the illusion.
 
 6. - He is forever talking about the friendly people, the clean atmosphere, the closeness to nature and the gentle pace of living. 
 7. - Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures. 
 
 8. This idyllic pastoral scene is only part of the picture. 
+>The above is the description of the idyllic pastoral scene and The other part of the picture is like below.
 
 9. - My friend fails to mention the long and friendless winter evenings in front of the TV—virtually the only form of entertainment. 
 10. - He says nothing about the poor selection of goods in the shops, or about those unfortunate people who have to travel from the country to the city every day to get to work. 
 
 11. Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyond me. 
+>The author doesn't understand why people are prepared to spend so long time on the road, or he doesn't try to understand. He thought people's decision is not reasonable or illogical. the benifits of living in the country are not worth of the mesery of travelling so long time on road.
 12. They could be saved so much misery and expense if they chose to live in the city where they rightly belong.
 
 If you can do without the few pastoral pleasures of the country, you will find the city can provide you with the best that life can offer. You never have to travel miles to see your friends. They invariably live nearby and are always available for an informal chat or an evening's entertainment. Some of my acquaintances in the country come up to town once or twice a year to visit the theatre as a special treat. For them this is a major operation which involves considerable planning. As the play draws to its close, they wonder whether they will ever catch that last train home. The city dweller never experiences anxieties of this sort. The latest exhibitions, films, or plays are only a short bus ride away. Shopping, too, is always a pleasure. There is so much variety that you never have to make do with second best. Country people run wild when they go shopping in the city and stagger home loaded with as many of the exotic items as they can carry. Nor is the city without its moments of beauty. There is something comforting about the warm glow shed by advertisements on cold wet winter nights. Few things could be more impressive than the peace that descends on deserted city streets at weekends when the thousands that travel to work every day are tucked away in their homes in the country. It has always been a mystery to me why city dwellers, who appreciate all these things, obstinately pretend that they would prefer to live in the country.
