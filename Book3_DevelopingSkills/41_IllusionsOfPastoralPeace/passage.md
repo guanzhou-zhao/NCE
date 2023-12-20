@@ -18,13 +18,13 @@ Apart from clearly expressing the his willingness to live in the city and less i
 5. Even he still lives under the illusion that country life is somehow superior to town life. 
 The author's friend thinks or feels or recons or acts like that country life is better than town life. But the author couldn't understand or can only dimly understand, or he thought that his friend's idea about the country is not reasonable or not logical, or not persuasive, or is hypocritical or dishonest, because his friend went live in the country and was back in town within six months. If he really loves the peaceful life of the country, why did he come back to town. Ater coming back in town, he still feels that the country is better and forever praising the advantages of the country. So the author recon that his friend lives under the illusion(a false idea which is not real, not actual, not in reality). The author sees that what his friend talks and does are different, or even opposite or contradicting. The author sees contradiction in his friend's action and thought. This difference doesn't confuse the author. He confidently think that his friend lives under illusion.
 
-- 6. He is forever talking about the friendly people, the clean atmosphere, the closeness to nature and the gentle pace of living. 
-- 7. Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures. 
+6. - He is forever talking about the friendly people, the clean atmosphere, the closeness to nature and the gentle pace of living. 
+7. - Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures. 
 
 8. This idyllic pastoral scene is only part of the picture. 
 
-- 9. My friend fails to mention the long and friendless winter evenings in front of the TV—virtually the only form of entertainment. 
-- 10. He says nothing about the poor selection of goods in the shops, or about those unfortunate people who have to travel from the country to the city every day to get to work. 
+9. - My friend fails to mention the long and friendless winter evenings in front of the TV—virtually the only form of entertainment. 
+10. - He says nothing about the poor selection of goods in the shops, or about those unfortunate people who have to travel from the country to the city every day to get to work. 
 
 11. Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyond me. 
 12. They could be saved so much misery and expense if they chose to live in the city where they rightly belong.
